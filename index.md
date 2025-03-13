@@ -1,6 +1,3 @@
-Privacy Policy
-
-
 Welcome to SprayShot ("we," "our," or "us"). Your privacy is important to us. This Privacy Policy explains how we collect, use, disclose, and protect your information when you use our services.
 
 For any questions, contact us at viveknoteme@gmail.com.
